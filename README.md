@@ -4,7 +4,7 @@
 - 📫 How to reach me? 📞-  ;Why?!;
 
 
-By: #Numher0, the one agaist Zehr0's.
+By: #Numher0, the one against Zehr0's.
 
 Zehr0/Zehr0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
